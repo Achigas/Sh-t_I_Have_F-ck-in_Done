@@ -1,2 +1,2 @@
-# Sh-t_I_Have_F-ck-in_Done
+# Shiffy
 A personal blog to remember what I've watched, read, baked, etc...
